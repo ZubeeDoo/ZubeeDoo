@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ZubeeDoo
+- 👀 I’m interested in just everything.
+- 🌱 I’m currently learning what ever I can ...Knowledge is wealth 
+- 📫 How to reach me ...Please dont I will talk about some stupid stuffs like aliens and multiverse and waste your time.
